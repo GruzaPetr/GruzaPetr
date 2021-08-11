@@ -1,1 +1,0 @@
-- 👋 Hi, I’m @GruzaPetr | www.PetrGruza.com
